@@ -1,7 +1,6 @@
  ## Dannyeli Cristina
 
 Arquiteta e Urbanista por formação e **programadora** por paixão; <br/>
-Estudo MSI no IFPE e **back-end** na {reprograma} 👩🏽‍💻 <br/>
 
 ##
 
