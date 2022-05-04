@@ -1,6 +1,6 @@
  ## Dannyeli Cristina
 
-Arquiteta e Urbanista por formação e **programadora** por paixão; <br/>
+Arquiteta e Urbanista por formação e **programadora** por paixão <br/>
 
 ##
 
